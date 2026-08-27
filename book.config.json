@@ -1,0 +1,21 @@
+{
+  "title": "The Garden of Small Gods",
+  "subtitle": "A Novel",
+  "genre": "Magical realism",
+  "author": "Walusimbi Leon",
+  "description": "In a city apartment block, the plants begun by the dead keep growing and speaking \u2014 and a grieving widow learns to listen.",
+  "style": "Tender magical realism, third-person. The ordinary made luminous; grief handled with light hands.",
+  "characters": "Amara \u2014 widow, 50s, closed-off then opening; the garden \u2014 a chorus of small green voices.",
+  "setting": "A weathered apartment block in a warm city, present day.",
+  "notes": "Begin with a plant that should be dead blooming overnight. Amara finds her late husband's voice in the leaves. Quiet wonder.",
+  "chapterTitle": "Chapter",
+  "mdFiles": [
+    "v2.0/book.md"
+  ],
+  "htmlFiles": [
+    "v2.0/book.html"
+  ],
+  "indexInject": null,
+  "mdHeadingLevel": 3,
+  "targetWords": 2000
+}
