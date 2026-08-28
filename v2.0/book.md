@@ -170,6 +170,74 @@ When Amara finally went back upstairs, the jasmine was still blooming. She water
 
 She closed her eyes. The perfume filled the apartment. The kettle sat cold and silent on the stove, and she thought — for the first time in four months — that she might make tea.
 
+### Chapter 3 — The Roots Remember
+
+The kettle boiled. That was the miracle of it, the small domestic wonder of steam rising and the whistle building, and Amara stood in her kitchen watching it as if it were the most extraordinary thing she had ever seen. She had not made tea in four months. The box of Earl Grey sat where Daniel had left it, the foil torn, the bags slightly stale. She took one anyway. She would not apologize for the staleness. It was his tea, and he was in the leaves, and the leaves were speaking.
+
+She poured the water into the blue ceramic mug — his favorite, the one with the chip in the rim that he refused to throw away because it was still perfectly good, Amara, a chip is not a crack — and she held the mug in both hands and breathed in the steam. The jasmine rustled on the balcony, and she could feel its attention, patient and warm, like the way Daniel used to look at her across the breakfast table.
+
+*Careful, it's hot*, said the leaves.
+
+"I know it's hot," she said, and she almost laughed. The sound came out of her strange and unpracticed, like a bird learning to sing again. "I've made tea for forty years."
+
+*I know.* A pause, the leaves shifting. *I just like saying things to you.*
+
+She carried the mug to the balcony and sat on the low wall, wrapping her hands around the warmth. The morning had grown fully into itself now — the sky a deep, clear blue, the mango tree buzzing with bees, the city humming its distant and indifferent song. Below, the courtyard had gone quiet again, the neighbors retreated to their apartments, carrying their miracles with them like cups of something precious and fragile.
+
+"I don't understand this," Amara said. "I keep waiting to wake up. Or to realize I've gone mad."
+
+*There are worse things than madness*, said the jasmine. *I was a seed once. I did not understand the sun. I just turned toward it, because I had no other choice.*
+
+She sipped the tea. It was too strong, the way Daniel always made it, dark and bitter and real. She could taste him in it, the afterimage of a man who had never once measured his tea bags. "Are you saying I should just accept it?"
+
+*I am saying*, the leaves rustled, *that you watered me. That is enough. That is always enough.*
+
+She sat with that for a while, letting the words settle into her like sediment in a jar of water. The tea cooled. The sun moved. Somewhere in the building, a door opened and closed. She heard footsteps on the stairs, and then a voice — Mrs. Odongo, calling her name.
+
+Amara set the mug down and went to the railing. The old woman was on the third-floor landing, her face still wet, her eyes still bright with the impossible. She was carrying a small clay pot, and in it was a cutting of her bougainvillea, one branch severed and planted in fresh dark soil.
+
+"Amará," Mrs. Odongo said, her voice cracking. "I have something to ask you."
+
+"Come in," Amara said. "Come in."
+
+They sat at the small kitchen table, the one that had held so many meals, so many arguments, so many ordinary and precious hours. Mrs. Odongo set the clay pot between them. The cutting was a single branch, leafless, bare as a bone. But even as Amara watched, she saw the tiniest curl of green at the tip, a bud unfurling with impossible speed.
+
+"My Samuel," Mrs. Odongo said, "he wants me to give this to you. He says you'll know what to do with it."
+
+Amara looked at the cutting. She looked at Mrs. Odongo. "I don't — I've never — I can't even keep my own jasmine alive."
+
+"Your jasmine is the most alive thing in this building," Mrs. Odongo said, and there was no flattery in her voice, only fact. "Samuel says — he says the roots know. The roots are how they speak to each other, underground. He says you understand that now."
+
+The cutting rustled. A voice came from it, faint and distant, like a radio signal from far away: *She is the gardener now. Give her the branch. She will know.*
+
+Amara's hands trembled around her mug. "Why me?"
+
+Mrs. Odongo leaned forward, and her hand closed over Amara's, warm and dry and impossibly strong. "Because you heard. That's all it takes, Amara. That's the whole secret. You heard the leaves, and you watered them, and you didn't walk away."
+
+The bougainvillea cutting rustled again, and this time the voice was clearer, a gruff and gentle baritone that seemed to come from everywhere at once. *The garden remembers its gardener. We have been waiting for you, all of us. The whole building. The whole block. We knew you would come.*
+
+Amara looked down at the bare branch in the clay pot. She thought of the avocado tree cracking the foundation. She thought of the mint on the young mother's windowsill. She thought of the herbs in the cooking-oil tins, and the man who had grown the avocado pit, and all the small green deaths and resurrections that had been happening in this building for decades, waiting for someone to listen.
+
+"I don't know what to do," she said honestly.
+
+*Then we will teach you*, said the jasmine from the balcony, and the bougainvillea cutting rustled in agreement, and somewhere in the courtyard below, the avocado tree groaned — a sound like a great creature stretching in its sleep.
+
+Mrs. Odongo squeezed her hand. "Samuel says there are more. More plants, more voices. The whole city, maybe. He says the dead are in all of them, waiting for someone to come with water and ears."
+
+Amara looked out the window. The city sprawled beyond the courtyard wall, a tangle of rooftops and antennas and water towers, each one holding its own small garden of green — potted plants on fire escapes, herbs on windowsills, trees pushing up through cracked pavement. She had walked past all of them a thousand times, never noticing, never listening.
+
+*It starts with one pot*, said the jasmine. *It always starts with one pot.*
+
+She stood up. She picked up the clay pot with the bare branch. She carried it to the balcony and set it beside the jasmine, where it would catch the morning sun. Then she went inside, found the green watering can, filled it at the sink, and came back out.
+
+She poured the water slowly over the soil around the bougainvillea cutting. The water soaked in. The bare branch trembled. And at its tip, a leaf unfurled — small and green and new, reaching toward the light.
+
+Amara sat down on the low wall. She picked up her tea. The jasmine rustled beside her, and the bougainvillea cutting whispered something soft and grateful, and the morning went on in its ordinary and luminous way.
+
+*You're doing well*, said the leaves.
+
+She didn't answer. She just sat there, two widows and their plants, while the sun climbed higher over the city, and the green voices murmured their quiet songs, and the kettle on the stove sat cold and satisfied, its work done for the day.
+
 ---
 
 ## About This Book
