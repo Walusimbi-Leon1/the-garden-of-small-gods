@@ -238,6 +238,124 @@ Amara sat down on the low wall. She picked up her tea. The jasmine rustled besid
 
 She didn't answer. She just sat there, two widows and their plants, while the sun climbed higher over the city, and the green voices murmured their quiet songs, and the kettle on the stove sat cold and satisfied, its work done for the day.
 
+### Chapter 4 — The Roots Beneath the Roots
+
+The bougainvillea cutting grew three leaves by noon and five by the time the sun began its slow decline toward the rooftops. Amara checked on it obsessively, the way she had once checked on Daniel during his last weeks — a hand hovering near, not quite touching, afraid that attention itself might somehow break the fragile machinery of living.
+
+Mrs. Odongo had stayed until the afternoon light turned amber, telling stories of Samuel in a voice that grew steadier with each telling. How he had planted the bougainvillea the year they moved in, a spindly thing from his mother's yard in Jinja. How he had argued with the landlord when the roots crept into the plumbing. How he had talked to it every evening while watering, a habit she had found embarrassing, then endearing, then simply part of the fabric of their life together.
+
+"I used to mock him," Mrs. Odongo said, wiping her eyes with the back of her hand. "I told him the plant couldn't hear him. He just laughed and said, 'Martha, everything can hear. You just have to be quiet enough to notice.'"
+
+Amara had walked her to the door, and they had embraced — a real embrace, the kind that lasted longer than politeness required. The kind that said: *We are in this together now, whatever this is.*
+
+After she left, Amara stood in the hallway for a long moment, listening. The building had changed. She could hear it now, the way she had once learned to hear the particular creaks and groans of Daniel's body in the night — the sounds that meant he was turning over, that meant he was dreaming, that meant he was still alive.
+
+The pipes ran with water. The floors settled. And beneath all of it, faint as memory, she could hear the green things breathing.
+
+---
+
+She found the first one in the stairwell.
+
+It was a potted fern on the second-floor landing, wedged between the railing and the wall, its fronds drooping brown at the tips. Amara had passed it a hundred times without seeing it. Now she stopped, and she looked, and she heard — a thin, reedy voice, like a child speaking through a cracked cup.
+
+*Thirsty. So thirsty. No one comes anymore.*
+
+She crouched down. The pot was cracked, the soil dry and hard as brick. A faded sticker on the side read *BIRTHDAY WISHES, 2003*.
+
+"Who watered you?" she asked softly.
+
+*The woman in 2B. She is gone now. They took her to the place with the white sheets. No one waters anymore.*
+
+Amara touched the dry soil. It crumbled under her fingers, and she felt the fern's desperation like a pressure in her chest — a small, dry, gasping thing. She thought of Mrs. Odongo's words: *The whole building. The whole block. We knew you would come.*
+
+She went back to her apartment, filled the watering can, and came back down. She poured slowly, letting the water soak in rather than run off, the way Daniel had taught her with the jasmine — *slow, Amara, slow. You can't force a root to drink.*
+
+The fern shuddered. Its fronds lifted, one by one, like a person waking from a long sleep.
+
+*Thank you*, it whispered. *Thank you, thank you.*
+
+"All right," Amara said, standing up. "All right."
+
+---
+
+The next one was in the basement.
+
+She had not been to the basement in years — not since Daniel had gone down to fix the water heater and come back covered in dust and spiderwebs, laughing, saying the building had a heart of rust and concrete and it was still beating. The stairs were steep and the light was a single bulb on a pull-cord, and the air smelled of old cardboard and damp.
+
+But she heard it before she reached the bottom. A low, steady humming, like a song sung half to oneself.
+
+*...and the rain falls down, and the river runs, and the seed remembers the sun...*
+
+She pulled the cord. The bulb flickered on.
+
+In the corner, on a shelf made of cinder blocks and a plank of wood, sat a single pot of basil. It was enormous — a thick, woody stem that must have been years old, branching into a canopy of deep green leaves. It had clearly been there for a long time, but it was not dry. Not thirsty. There was a saucer beneath it, and the saucer held a small puddle of water, as if someone had watered it recently.
+
+*Oh*, said the basil, its voice rich and warm, like the smell of pesto on a summer evening. *You're early. I was not expecting you until Thursday.*
+
+Amara blinked. "Who watered you?"
+
+*The boy in 3A. He comes every Thursday after his music lessons. He does not know I speak. He just likes the smell. He says it reminds him of his grandmother's kitchen.*
+
+"He doesn't know?"
+
+*No. But he waters. That is enough. That is always enough.*
+
+The words echoed — the jasmine had said the same thing. She wondered if this was a law of the green world, repeated like a catechism. *Watering is enough. Presence is enough. You do not need to understand.*
+
+"Can you tell me—" she started, but the basil rustled, and she had the sense it was smiling.
+
+*Ask the fig tree. In the courtyard. It has been here the longest. It remembers everything.*
+
+---
+
+The fig tree grew in the far corner of the courtyard, pressed against the wall where the sun came late and left early. Amara had always thought of it as a scrappy thing, surviving on neglect, its roots cracking the concrete in long, patient fingers. But now, standing before it, she saw it differently.
+
+It was old. Ancient, maybe. The trunk was thick as a man's chest, the bark gray and furrowed with decades of weather. The leaves were broad and dark, and they moved even when there was no wind.
+
+She stood beneath it, and she waited.
+
+The tree was silent for a long moment. Then, slowly, a voice rose from its roots — not from the leaves, but from deep underground, as if the words were traveling up through the trunk from somewhere far below. It was the oldest voice she had heard yet. Gravelly. Slow. Patient as stone.
+
+*You are the widow.*
+
+It was not a question. Amara nodded anyway.
+
+*I knew your husband. Not well. He did not water me, but he sat beneath me sometimes, in the evenings. He would read. He would talk to himself. He would look at your window.*
+
+Amara's breath caught. "He did?"
+
+*Every evening. He did not know I was listening. But the roots hear everything. The roots are how we share our stories. He was a good man. He was sad, sometimes, in ways he did not understand. But he loved you. That was in him like water in the ground. It went everywhere.*
+
+She pressed her hand to the bark. It was warm from the day's sun, rough and solid beneath her palm. She had not cried in weeks — had thought, in fact, that she had run out of tears. But now they came, silent and steady, running down her face and into the collar of her shirt.
+
+The fig tree said nothing more. It simply stood there, vast and patient, holding her grief the way it held the soil — dark, deep, and full of hidden life.
+
+---
+
+That night, Amara did not sleep.
+
+She sat on the balcony instead, wrapped in Daniel's old cardigan, watching the city breathe. The moon was a thin crescent, and the stars were faint behind the glow of streetlights, but the garden was alive with sound. She could hear them all now — the jasmine, the bougainvillea, the fern on the stairwell, the basil in the basement, the fig tree in the courtyard. And beyond them, fainter, the voices of other plants in other windows, other balconies, other tiny patches of earth.
+
+A whole city of green voices, murmuring in the dark.
+
+*They are all waiting*, said the jasmine. *All of them. The whole world is full of us, and we are full of them.*
+
+"Them?" Amara said.
+
+*The ones you cannot see anymore. The ones who planted us. The ones who watered us. We carry them. We remember. As long as we grow, they are not gone.*
+
+She looked down at her hands. They were older now than Daniel had known them — lined, spotted, the hands of a woman who had survived. She thought of the avocado tree cracking the foundation, and the mint on the young mother's windowsill, and the enormous basil in the basement, and the fern that had nearly died of thirst.
+
+*It starts with one pot*, the jasmine had said.
+
+But she understood now that it had never started with her. It had started with the dead, pressing their love into the soil, trusting that someone would come with water and ears. It had started with Daniel, planting the jasmine she had so nearly let die. It had started with Samuel, and the bougainvillea. With the woman in 2B, and her fern. With all the small, ordinary, luminous acts of care that had been going on in this building for decades, unnoticed and unremembered.
+
+She was not the beginning of the story. She was just the one who had finally learned to listen.
+
+The bougainvillea cutting rustled beside her, and she heard Samuel's voice, faint but clear: *The garden remembers. That is all. That is everything.*
+
+Amara pulled the cardigan tighter around her shoulders. The city hummed its distant song. The moon moved slowly across the sky. And in the darkness, in the soil, in the roots beneath the roots, the dead kept growing — patient, green, and full of light.
+
 ---
 
 ## About This Book
