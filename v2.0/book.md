@@ -356,6 +356,82 @@ The bougainvillea cutting rustled beside her, and she heard Samuel's voice, fain
 
 Amara pulled the cardigan tighter around her shoulders. The city hummed its distant song. The moon moved slowly across the sky. And in the darkness, in the soil, in the roots beneath the roots, the dead kept growing — patient, green, and full of light.
 
+### Chapter 5 — The Seed Remembers the Sun
+
+When Amara woke, the morning light was wrong.
+
+She knew this before she opened her eyes—the way the sun fell across her eyelids was too green, too dappled, as if someone had hung a canopy of leaves between her window and the sky. She lay still for a moment, breathing in the smell of damp earth and chlorophyll, and then she sat up.
+
+The jasmine had grown.
+
+It was not the jasmine she had nursed back from the brink. That plant had been a scraggly thing, a bundle of dry stems in a pot too small for it, its leaves the color of old paper. What she saw now, climbing the wall beside her window, was something else entirely. The vine had thickened to the width of her wrist, and it had spread—not just along the trellis Daniel had built years ago, but up the wall, across the ceiling, and down the other side, framing her window in a curtain of dark, glossy leaves. The blooms were everywhere, white and heavy, their scent so thick it felt like breathing honey.
+
+She got out of bed slowly. The floor was cool beneath her feet. The jasmine rustled as she approached, and she heard Daniel's voice, softer now, more settled, like a memory that had learned to smile.
+
+*You slept well. I watched over you.*
+
+Amara touched a leaf. It was cool and firm, and it pressed back against her fingertip.
+
+"How did you grow so much in one night?"
+
+*I have been waiting a long time to be heard. Now that you can hear, I can grow.*
+
+She stood in the light, in the green, in the heavy sweetness, and let that settle into her. All those years of watering a plant that seemed to be dying. All those years of talking to a pot of dirt because it was easier than talking to the air. She had thought she was keeping a memory alive. She had not understood that she was feeding it.
+
+The jasmine's voice drifted down from the ceiling, where it had begun to twine around the light fixture. *Amara. There is something I need to show you. But you must bring the watering can.*
+
+She did not ask why. She simply filled the can, the way she had done every morning for months, and followed the vine.
+
+It led her out of the apartment—the vine had grown through the gap beneath the door, she realized, a thin runner of green that had somehow squeezed through the crack without breaking. It led her down the hallway, where the fern on the stairwell rustled as she passed, its fronds reaching toward her like a blessing. It led her past the bougainvillea on the landing, which had burst into such a riot of magenta that the petals carpeted the floor like a wedding aisle. And it led her down the stairs, past the basement door, and out into the courtyard.
+
+The fig tree was no longer in the corner.
+
+It was everywhere.
+
+The roots had spread across the entire courtyard, cracking the paving stones in long, branching patterns, lifting them like the pages of a book. The trunk had thickened, and from it rose a dozen smaller trunks, each one wrapped around the next, so that the tree seemed less like a single organism and more like a congregation. The canopy had expanded to cover the whole courtyard, casting the space in deep, green shade. And beneath the tree, arranged in a loose circle, were pots.
+
+Amara counted them. Twenty-three pots. Each one held a plant she had never seen before—a fern with fronds like lace, a flowering vine she did not recognize, a cluster of herbs she could not name. Each one was healthy. Each one was thriving. And each one, she realized with a slow, dawning wonder, had been placed there recently, in the last few hours, while she slept.
+
+The fig tree's voice rose from the roots, old and slow, like sediment settling.
+
+*They came in the night. The others.*
+
+"Others?"
+
+*The ones who heard. The ones who listened. The whole building is awake now, Amara. You were the first, but you are not the last.*
+
+She looked at the pots again. There was a saucer beneath each one, and in each saucer, a small puddle of water, still fresh. She knelt beside the nearest pot—a young lemon tree, its leaves bright and sharp with citrus scent—and ran her fingers through the soil. It was damp. Recently watered.
+
+*They are shy*, said the fig tree. *They do not know what to say. But they have brought their plants to be near you. To be near the one who hears.*
+
+Amara stood up slowly. Her knees cracked. She was getting old, she thought, and then she corrected herself: she *was* old. But the garden did not seem to mind. The garden seemed to think she was exactly the right age for this.
+
+She looked up at the fig tree's canopy, at the light filtering through the leaves in coins of gold, and she thought of Daniel. She thought of the way he had always talked to the plants when he thought no one was listening. The way he had apologized to the ficus when he accidentally overwatered it. The way he had named the spider plant in the kitchen—Gertrude, for reasons he could never explain. All those small, quiet acts of tenderness. She had thought they were eccentricities. She had not understood that they were prayers.
+
+*He was a gardener*, the fig tree said, as if reading her thoughts. *Not with his hands. With his attention. He saw things that were small and gave them his whole heart. That is a kind of holiness.*
+
+Amara pressed her hand to her chest. The tears came again, but they were different now—less like grief, more like release. She let them fall into the soil at her feet, and she felt the ground accept them, the way it accepted everything: rain, tears, the slow decay of old leaves, the quiet rest of the dead.
+
+She walked through the courtyard, touching each pot in turn. The lemon tree. The ferns. The flowering vines she could not name. She did not know who had brought them, but she knew they had been brought with love. She could feel it in the soil, the way she could feel Daniel's love in the jasmine, Samuel's in the bougainvillea.
+
+*They are waiting for you to teach them*, said the jasmine, from somewhere above her head. She looked up. The vine had followed her down, and it was draped over the fig tree's lowest branch, its white blooms gleaming like stars against the dark leaves.
+
+"Teach them what?"
+
+*How to listen. How to hear. You are the first. That is a burden and a gift. But you will not carry it alone.*
+
+Amara turned in a slow circle, taking in the courtyard, the pots, the canopy, the light. She thought of the boy in 3A, watering the basil every Thursday without knowing it spoke. She thought of the young mother with the mint on her windowsill, the couple on the second floor with their ficus, the old man in 5B who grew tomatoes on his balcony and gave them away to strangers. The whole building was full of them—small, quiet people doing small, quiet acts of care.
+
+*You are a gardener now*, said the fig tree. *Not because you planted, but because you stayed. Because you watered. Because you listened.*
+
+Amara knelt down and placed her hand on the trunk of the lemon tree. It was smooth and young, still finding its shape. She could feel the life inside it, the slow, patient pulse of growth. She could feel, too, the faint whisper of whoever had planted it, a voice so faint she could not make out the words—but she knew they were words of love. She knew that shape. She had been holding it in her hands for months.
+
+"All right," she said, to the lemon tree, to the fig tree, to the jasmine, to the whole green chorus of the courtyard. "All right."
+
+She went back up to her apartment and retrieved the watering can. She filled it again. She came back down and began to water each pot, one by one, slowly, the way Daniel had taught her. The fern on the stairwell rustled as she passed. The bougainvillea dropped a petal on her shoulder. The basil in the basement hummed a low, warm song.
+
+And in the courtyard, beneath the fig tree's vast and patient canopy, the small gods of the garden stirred in their soil, and they were not alone anymore.
+
 ---
 
 ## About This Book
