@@ -432,6 +432,96 @@ She went back up to her apartment and retrieved the watering can. She filled it 
 
 And in the courtyard, beneath the fig tree's vast and patient canopy, the small gods of the garden stirred in their soil, and they were not alone anymore.
 
+### Chapter 6 — The Congregation
+
+Amara stayed in the courtyard until the light changed. It came slowly, the way it always did in the city — first a thinning of the dark, then a gray softening along the roofline, then a single bird beginning its work in the fig tree's canopy, then the whole sky going amber at the edges. She sat on the low wall that bordered the old flower beds, the ones Daniel had dug out and filled with marigolds the first year they moved in. The marigolds were gone now, but the soil remembered them. She could feel that memory in the way the ground held the morning's moisture, the way it released the scent of rain and old roots.
+
+She had not slept. She did not feel tired.
+
+The pots sat in their loose circle, twenty-three of them, each one a small green statement of faith. She had watered them all, and now they gleamed with the particular brightness of plants that have just been given what they need. She wondered who had carried them down the stairs in the dark. Who had knelt in this courtyard at two in the morning, pressing soil around unfamiliar roots, trusting that a woman she had never spoken to would understand.
+
+The lemon tree's leaves stirred, though there was no wind. *They are awake now*, it said. Its voice was young, uncertain, like a child reciting a lesson learned by heart. *They are watching from their windows.*
+
+Amara looked up. The building rose around the courtyard in a rough rectangle, seven stories of weathered brick and crumbling balconies. She saw curtains move on the third floor. A shadow on the second. On the fifth floor, the old man's balcony was a tangle of tomato vines, and among the leaves she caught the glint of a face, quickly withdrawn.
+
+"They're afraid," she said.
+
+*They are not afraid of you*, said the fig tree. *They are afraid of themselves. Of what they might hear if they listen closely enough.*
+
+Amara considered this. She had felt that fear, too — the terror of discovering that the silence you had lived with was not silence at all, that the dead had been speaking all along and you simply had not known how to hear. She had spent months avoiding the jasmine because its voice was too much like Daniel's. She had watered it resentfully, dutifully, as if it were a penance rather than a gift.
+
+And then, one morning, she had stopped fighting.
+
+She heard footsteps on the stairs. The basement door creaked open, and the man from 5B emerged, carrying a pot. He was old — older than her, she thought, though it was hard to tell with him; his face was creased and kind, the face of someone who had spent a lifetime squinting at small things in bright sunlight. He wore a faded shirt and sandals, and his hands were the hands of a gardener: soil under the nails, calluses on the pads, a careful gentleness in the way he held the pot.
+
+He stopped when he saw her. His face went through a series of expressions — surprise, then embarrassment, then something that looked almost like hope.
+
+"You're the one," he said. His voice was rough, unused to speaking. "The one who hears them."
+
+Amara did not know how to answer that. She nodded.
+
+The man carried the pot to the edge of the circle and set it down with a care that bordered on reverence. The pot held a basil plant, but not like any basil Amara had seen. It had grown into a small shrub, its leaves dark and glossy, its stems thick as pencils. It gave off a scent so rich and green that she could taste it on her tongue.
+
+"Basil," she said.
+
+"My wife's," the man said. "She planted it forty years ago, the year we moved into this building. She said it was for the kitchen, but I think she just liked the smell." He touched one of the leaves, and his voice softened. "She died three years ago. I kept watering it because I didn't know what else to do. And then —" He stopped. His eyes were wet. "Last night, it spoke to me. It said her name."
+
+Amara stood up. She crossed the courtyard and knelt beside the basil, the way she had knelt beside the lemon tree. She placed her hand on the soil, and she felt it — a presence, old and warm, like a hand resting on her own. A woman's voice, faint but unmistakable, humming a tune Amara did not recognize but somehow understood.
+
+"She's still here," Amara said.
+
+The man from 5B — Mr. Kizza, she learned, though he insisted she call him just Kizza — nodded. "I know," he said. "I've known for a long time. I just didn't think anyone else would believe me."
+
+"They would," said Amara. "They're all watching."
+
+She gestured at the windows, and Kizza looked up. The curtains had moved again, more of them now. On the third floor, the boy was pressed against the glass, his basil plant in his hands. On the second floor, the young mother stood at her window, her mint in its pot on the sill. The couple with the ficus were on their balcony, the ficus between them, looking down at the courtyard with expressions Amara could not quite read.
+
+The basil spoke again, its voice rising from the leaves like steam. *He has watered me for forty years*, it said. *Every day. Even when he was sick. Even when he was so sad he could barely stand. He never missed a day. That is devotion.*
+
+Kizza heard it. Amara saw the recognition in his face — the same wonder she had felt, the same slow dawning of understanding that the love he had poured into the soil had not disappeared. It had been transformed. It had become this — a voice, a presence, a small green god that had been waiting all along for someone to listen.
+
+"I thought I was talking to myself," Kizza said. His voice was barely a whisper.
+
+*You were talking to her*, said the basil. *And she was talking back. You just could not hear her over your own grief.*
+
+Amara reached out and took Kizza's hand. It was a surprising gesture — she was not a woman who touched people easily, not since Daniel died. But the garden had taught her something, and she wanted to pass it on. "You'll learn," she said. "It takes time. But you'll learn to hear."
+
+They stood together in the courtyard, two old people holding hands among the pots, while the morning light climbed down the walls of the building and the fig tree's roots settled deeper into the ground. And one by one, the windows began to open.
+
+The boy from 3A came first. He was maybe eleven, with a serious face and the careful movements of a child who had learned to be quiet. He carried his basil down the stairs and set it in the circle without a word, then looked at Amara with an expression that asked a question he could not voice.
+
+She answered it. "Yes," she said. "It talks. It's been talking to you for a long time. You just didn't know how to hear it."
+
+The boy's face cracked open — not into tears, but into something brighter. He knelt beside his basil and put his ear to the leaves, and Amara watched his face change as the plant spoke to him for the first time. She did not know what it said. She did not need to. The boy's smile was enough.
+
+The young mother came next, with her mint. She was thin and tired, with dark circles under her eyes — the particular exhaustion of a woman who had been running on empty for years. She set the mint down and opened her mouth, then closed it again. She could not find the words.
+
+"It's all right," Amara said. "You don't have to say anything. The plant knows."
+
+The mother looked at her, and something in her face loosened, the way soil loosens after rain. She knelt beside the mint and placed her hand on the leaves, and Amara felt the courtyard fill with a new voice — small and green and young, saying things that were only for the mother to hear.
+
+The couple with the ficus came down together. The old man from the fifth floor came down. The woman from the first floor, who grew orchids in her bathroom because she said they liked the steam, came down with a pot of them, their blooms pale and luminous as moons. By the time the sun was fully up, the courtyard was full.
+
+Not all of them could hear. Amara saw that quickly. Some of them stood by their pots with puzzled expressions, listening to nothing, hoping. But they stayed. They cared for the plants. They watered them, pruned them, spoke to them, even if they could not hear the voices that answered.
+
+And the plants — the small gods of the garden — received it all. They drank the attention the way they drank water. They grew. The lemon tree put out new leaves. The mint spread beyond its pot, creeping into the cracks of the paving stones. The basil's scent thickened until the whole courtyard smelled like a kitchen on a Sunday morning. The orchids opened their blooms one by one, patient and miraculous.
+
+Amara stood at the center of it all, the watering can in her hand, and she felt something she had not felt in months. Not happiness, exactly. Something quieter. Something like being home.
+
+*You did this*, said the jasmine, from its place in the fig tree's branches. *You opened the door.*
+
+"No," Amara said. "I just stopped keeping it shut."
+
+The jasmine's blooms shivered, and she could feel it laughing, a small green laughter that moved through the leaves. *That is the same thing*, it said. *That is the same thing.*
+
+She walked through the courtyard, touching each plant in turn — the basil, the mint, the orchids, the ficus, the lemon tree, the ferns and vines and herbs she did not know the names of. Each one whispered to her as she passed. Each one gave her a piece of its story. She carried them all, the way the soil carried the rain, and she let them settle into her.
+
+At the edge of the courtyard, by the basement door, she found a pot she had not noticed before. It was small and unassuming, tucked behind a stack of old bricks. It held a single plant — a jade plant, its leaves thick and green, its stem gnarled with age. She knelt down and touched it, and she felt a presence so familiar that her breath caught in her throat.
+
+She knew this pot. It had sat on their balcony for years, tucked in the corner where Daniel said it liked the morning light. She had forgotten it. She had assumed it had died with him, the way everything else had seemed to.
+
+*Hello, Amara*, said Daniel's voice, from the leaves of the jade plant. *I've been waiting for you to find me.*
+
 ---
 
 ## About This Book
